@@ -1,0 +1,1 @@
+# Andi-Syafiqah-Ramadhani-Nasrum-UTS-Kriptografi-Comparison-16-SELESAI-GENAP-
